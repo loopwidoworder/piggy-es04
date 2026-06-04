@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals Scripts advanced is the best blue lock rivals Script, featuring teleport and aimbot. Safe and powerful for all your needs.
 
 
 
